@@ -28,5 +28,5 @@
 ## 📫 Me contacter
 
 - LinkedIn : [ton lien]
-- Email : [ton email]
+- Email : alayelemari@gmail.com
 - Portfolio : [ton lien]
